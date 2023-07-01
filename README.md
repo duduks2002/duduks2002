@@ -1,5 +1,5 @@
 ### Bem vindo ao meu perfil
 
-📖📚Iniciante em programação
+📖📚 programação ❤️
 
-🧠 Meus projetos/treinos se encontram aqui !!!
+🧠 Meus projetos e treinos se encontram aqui !!!
